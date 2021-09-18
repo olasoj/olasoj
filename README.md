@@ -1,0 +1,1 @@
+An analytical and solution-oriented computer scientist with a wide variety of practical and professional experience. Adept at motivating self and others. Passionate about programming and educating the next generation of technology users and innovators.
